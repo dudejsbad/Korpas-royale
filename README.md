@@ -4,7 +4,7 @@ any ilegal action taken with this tool are YOUR actions,
 It was made for the entertainment of the users using it only, it wasnt made to haram anyone or anything.
 It was just 
 
-You can find the script in "script" or in "https://rbxscript.com".
+You can find the script in "script"
 
 
 
